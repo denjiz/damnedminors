@@ -1,1 +1,14 @@
-<img width="581" height="429" alt="Image" src="https://github.com/user-attachments/assets/cf2b7adc-31a0-4224-bf99-20ff7aec14c5" />
+<img width="2963" height="512" alt="Image" src="https://github.com/user-attachments/assets/6dfb50dc-24cb-44a3-9766-06abd7b048cf" />
+
+[atabook](https://fatality.atabook.org/)
+
+<img width="1280" height="715" alt="Image" src="https://github.com/user-attachments/assets/44369831-cb51-4e32-9358-2b5a1038630c" />
+
+[rentry](https://rentry.co/denjkint)
+
+<img width="1267" height="512" alt="Image" src="https://github.com/user-attachments/assets/847b7b25-bf08-4933-8be9-1e6119e325d0" />
+
+[lovemail](https://rentry.co/lovelyoomfies)
+
+<img width="1169" height="512" alt="Image" src="https://github.com/user-attachments/assets/c099de0e-b315-4ead-bc54-cd4e2afa07bb" />
+
