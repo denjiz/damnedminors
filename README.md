@@ -4,7 +4,7 @@
 
 <img width="1280" height="715" alt="Image" src="https://github.com/user-attachments/assets/44369831-cb51-4e32-9358-2b5a1038630c" />
 
-[rentry](https://rentry.co/denjkint)
+[<img width="1171" height="492" alt="Image" src="https://github.com/user-attachments/assets/99b459c0-42f1-41bc-b2d2-1a46e35d35b8" />](https://rentry.co/denjkint)
 
 <img width="1267" height="512" alt="Image" src="https://github.com/user-attachments/assets/847b7b25-bf08-4933-8be9-1e6119e325d0" />
 
